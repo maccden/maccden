@@ -1,7 +1,5 @@
 ### Hi there, I'm Matias - aka Matutee 👋
 
-<br />
-
 ## I'm a YouTuber, Developer, and Teacher!!
 
 -   🌱 I’m currently learning everything 🤣
